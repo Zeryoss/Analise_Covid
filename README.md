@@ -1,1 +1,0 @@
-# Analise_Covid
